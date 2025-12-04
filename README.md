@@ -1,1 +1,1 @@
-kanye west to najlepszy raper
+Kanye West to najlepszy raper
